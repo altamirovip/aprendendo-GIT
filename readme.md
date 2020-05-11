@@ -1,3 +1,52 @@
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
 In my life
 I've felt so self assured
 But suddenly it's all changed
@@ -29,3 +78,12 @@ But oh how all the seasons change
 And now I'm not that strong
 
 
+Cause I am lost
+Living inside myself
+Living inside this hell
+Living outside your love
+I am lost, somewhere inside my own dreams
+Afraid of what life really means
+Living without your love
+I am lost
+Living inside myself
